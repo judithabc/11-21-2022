@@ -22,7 +22,6 @@
 内讧
 相似在三线女主发现闺蜜男票背叛，男主发现朴是杀人犯
 
-![image](https://user-images.githubusercontent.com/87200925/202896099-1268006f-5302-45d9-a9ce-425cabd787dd.png)
 
 
 这是我的[主页](https://judithabc.github.io/)
